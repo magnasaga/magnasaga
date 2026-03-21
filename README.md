@@ -1,4 +1,4 @@
-👋 Oi, Eu sou o Paulo Ricardo Cunha da Silva (@magnasaga)
+👋 Oi, Eu sou o Paulo Ricardo (@magnasaga)
 
 👀 Estou interessado em aprender e densevolver habilidade no segmento computacional.
 
